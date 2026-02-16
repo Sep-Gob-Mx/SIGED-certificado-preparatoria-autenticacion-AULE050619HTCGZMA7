@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AULE050619HTCGZMA7
+AULE050619HTCGZMA7
